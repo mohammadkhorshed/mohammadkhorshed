@@ -35,7 +35,7 @@ This profile is a reflection of my journey — from practicing fundamentals to b
 ### 🤝 Let's Connect
 I'm always open to collaboration, feedback, and new opportunities.
 
-- 🌐 [LinkedIn](#)
+- 🌐 [LinkedIn](https://linkedin.com/in/mohammadkhorshed)
 - 📧 Email: khorshed161060@gmail.com
 
 ---
